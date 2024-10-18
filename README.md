@@ -16,7 +16,7 @@
 * 3 oz Tomato Paste (or 1 small can, add another if you like it more tomatoey)
 * 1 Bay Leaf
 * Pinch of grated Nutmeg
-* 2-3 cups Low-Sodiuim Chicken Broth
+* 2-3 cups Low-Sodium Chicken Broth
 * 1 cup Whole Milk
 * About 1lb of Tagliatelle, Papardelle, or Rotini
 * 2-3oz of grated Parmesano Reggiano
@@ -25,7 +25,7 @@
 1. Make a mirepoix from the onion, carrot, and celery and set it aside
 2. In a large, thick-bottomed pot on medium-high heat, add your EVOO, then add the beef and lightly season it with salt. Just lightly brown it, it's ok if it's still a bit pink. Once it's done, transfer it using a slotted spoon to a bowl and set it aside for a few minutes.
 3. Wipe out the pot (or don't if you want to re-use some of the grease) and add the diced pancetta. Cook it until it's a little crispy.
-4. Add the mireopoix to the pot with the pancetta. Sweat the veggies with the pancetta for about 8 minutes until the veggies are somewhat translucent and smell amazing.
+4. Add the mirepoix to the pot with the pancetta. Sweat the veggies with the pancetta for about 8 minutes until the veggies are somewhat translucent and smell amazing.
 5. Re-add the ground chuck to the pot, and dump in the Pinot Grigio. (If the wine boils, remove the pot from the heat, reduce your burner heat and then place the pot back on once you're sure the wine will simmer, at most).
 7. Now, break up the beef into small bits, and cook it until the wine is nearly evaporated. This should take about 15 minutes on medium-high heat. Mind it occasionally so that nothing sticks to the bottom of the pot.
 8. Once the wine has cooked down, add the bay leaf, tomato paste, nutmeg, salt, pepper, marjoram, basil, and oregano (sparingly for now). Now, fry the tomato paste until it's fairly dark and everything is covered. This shouldn't take but 5 minutes on medium-high heat.
